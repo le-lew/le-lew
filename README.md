@@ -5,7 +5,6 @@
 - 📫 How to reach me
   - qq:2766683133
   -  email: le_lew@163.com
-- 😄 Pronouns: chinese english
 
 
 <!---
